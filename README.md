@@ -1,1 +1,0 @@
-# seoulgangid-arch.github.io
